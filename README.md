@@ -1,11 +1,11 @@
-.. toctree::
- :maxdepth: 2
- # Plan of Care: When a Loved One Has Dementia
 
+ 
+ ===========================================
+ Plan of Care: When a Loved One Has Dementia 
+ ===========================================
 
- =================
  Table of Contents
- =================
+-------------------
 **Early Warning Signs
 Keeping the Person with Dementia Safe at Home
 Daily routine and Consistency
