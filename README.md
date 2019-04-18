@@ -1,9 +1,6 @@
 
- 
- ===========================================
  Plan of Care: When a Loved One Has Dementia 
  ===========================================
-
  Table of Contents
 -------------------
 **Early Warning Signs
