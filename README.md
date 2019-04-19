@@ -1,3 +1,10 @@
+.. toctree::
+   :maxdepth: 2
+   Table of Contents
+   Early Warning Signs
+   Daily Routine
+   Challenges and Coping Strategies
+   Planning Ahead: Checklists for managing care
 
  Plan of Care: When a Loved One Has Dementia 
  ===========================================
@@ -11,11 +18,7 @@
 
 **Challenges and Coping Strategies**
 
-**Helping Family Members and Others Understand AD**
-
-**Planning Ahead—Health, Legal, and Financial Issues**
-
-**Getting Help with Caregiving**
+**Checklists for Managing Care: Important Contacts**
 
 About this Guide 
 ----------------
