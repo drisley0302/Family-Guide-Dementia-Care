@@ -22,8 +22,7 @@
 
 About this Guide 
 ----------------
-.. image:: Grandparents white.jpg
-   :width: 30pt
+.. image:: Grandparents white.png  
    |Caretaking of a parent does not come naturally to most of us.  There is an inevitable reversal of roles when a parent or other beloved elder begins to demonstrate cognitive decline. For most, it requires a giant leap toward accepting the reality of this new relationship dynamic. This guide is designed to help family members understand the responsibilities that come with this new role.|
 
 **Early Warning Signs**
