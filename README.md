@@ -4,7 +4,7 @@
    
    Table of Contents
    
-   Early Warning Signs
+   Early Warning Signs 
    
    Daily Routine
    
@@ -17,8 +17,11 @@
  Table of Contents
 -------------------
 **Early Warning Signs**
+
 **Next Steps**
+
 **Keeping the Person with Dementia Safe at Home**
+
 **Checklists: Important Contacts**
 
 About this Guide 
