@@ -40,6 +40,24 @@ Cognitive decline becomes more common as individuals age.  Some cognitive declin
 6. Housekeeping.  Although housekeeping often becomes less of a priority for older people, some things are not typical and should be noted.  These might include: forgetting to empty garbage cans, clean kitty litter boxes, neglecting to do laundry or keeping spoiled food in the refrigerator.  
 
 **Next Steps**
+Pride, fear, unwillingness to accept the realities of aging, and extreme discomfort with change are some of the reasons. At AgingParents.com, we see scenarios like this quite often. Here are some of the approaches we suggest.
+
+If feasible, we always encourage a family meeting, including not only adult children, but caring others as well. A best friend may hold more sway in convincing a stubborn parent to think about safety than "the kids." (What do they know anyway?) Clergy, or someone the aging parent looks up to and respects, can be invaluable in persuading a change of heart.
+
+A doctor's input can be quite helpful. Our elders may trust and believe their doctors and take their direction seriously. We encourage asking the doctor to see the aging parent and to strongly advise a move or other step the parent can take to reduce the risk of living alone.
+
+As responsible adult children, we can check out suitable alternative living situations in advance and ask the aging parent to visit with us. "Just have lunch and see the place" is a first step. Most such facilities will gladly serve you lunch and show you around, introducing an aging parent to other residents.
+
+Marketing directors at assisted living facilities can be useful in helping an aging parent with the often difficult transition. However, beware of the sales pitch. They want to match the facility to the prospect, but there can be tremendous pressure on them to fill empty apartments. It is important to understand the legal limits of assisted living. Know them if you are considering it as an option for your parent.
+
+When our parents resist our help and refuse all suggestions, as some do, we can't force them. The exception is when an aging parent is truly a danger to himself or herself and legal means to protect the parent become necessary.
+
+Guardianship (also called conservatorship in California), while the ultimate protection against self-neglect, is an extreme step and should only be taken with the advice of an experienced elder law attorney. I consider it a sad last resort. It may be necessary, but it may carry a large emotional and financial price tag.
+
+Short of guardianship, we must remember the simple truth: There's no law against adults (even aging ones) making stupid decisions. As responsible and caring family members, we have to try our best to get our parents to look out for their own safety and well-being and to overcome their fears and resistance to change.
+
+Persistence can pay off. Aging parents may eventually realize that it's time to give up. Let's hope it doesn't take a broken neck to get there. Our ongoing encouragement and respectful, patient offers of help may be heeded over time.
+
 Work with your parents on this. Trusts, wills, durable powers of attorney and health care directives are the most important ones you need to review.  It might have been years since anyone looked them over.  Urge your parent to see an estate planning attorney.  Tax laws change, state laws can vary. Some aging parents have never actually gotten the necessary legal papers together.  The time may come when Dad is no longer competent to sign anything. Waiting until "the right time" is not good strategy.  It can be too late before you know it.
 
 Plan ahead for Dad's possible care needs.
