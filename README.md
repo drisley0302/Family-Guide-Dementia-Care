@@ -53,6 +53,35 @@ A family meeting provides the opportunity to share your concerns with your loved
 
 A doctor's input can be helpful. Elders often place a good deal of trust in their doctors and may take their direction seriously. If your loved one has agreed to have an assessment of their cognitive ability, this is a step in the right direction.  If your loved one refuses to see a medical professional, don't give up.  Keep encouraging them.  Reach out to their medical team with your concerns. Eventually, they will have a routine medical visit come up.  If the medical personnel have been alerted to your concerns, they will find a way to work an evaluation into a routine visit.  
 
+**Keeping the Person with Dementia Safe at Home**
+A diagnosis of dementia has been made. Of course, this has, most likely, been a shock to both you and your loved one.  Now what? Is it possible for a person diagnosed with dementia to remain in their home?  The answer is a resounding "yes" - at least for a while.
+Now that your loved one and concerned family or friends understand the cognitive difficulties that your loved one is facing, a decision may be made for him/her to remain in the home for as long as possible. With support, many people can remain in their homes.  
+The following are ways to provide a safe in-home support system.
+*Neighbors* Leave a set of house keys with a trusted neighbor.	Make sure there is access to the home, and someone can enter the home if a problem arises.
+*Phone Check-ins* Arrange for someone to call or visit your loved one daily.	
+*Purchase a medical alert system*  Consider one that is wearable.  Research the service that is the best fit for your loved one's needs.
+*Appliance safety* Consider upgrading appliances to those that have automatic shut off.  Tea kettles, coffee makers, even 
+stove tops can be installed with automatic shut off timers.  Remove fuses in the oven and shut off the gas.
+
+Lower temperature of hot water heater.	Minimizes the chance of accident	Some people may find the changes confusing or frustrating.
+Occupational therapists and social workers assessments from community support agencies 	Identify risk and enhance safety	 
+Emergency call system.	Person has 24-hour access to help should a problem arise. 	Person may not be able to understand concept or use of call button.
+Daily Living	Get help with tasks such as housekeeping and meal preparation, or with personal care such as bathing.	Someone is in the home to supervise activity and provide companionship. Tasks get accomplished.	Person with disease may be reluctant or resistant to accepting help.
+Sort closets and dresser drawers to make only the necessary clothes available.	Makes decisions about what to wear easier.	Does not help if the person has trouble knowing when or how to dress.
+Food	Meals on Wheels.	Delivery of hot meal once a day.	No way to monitor if food has been eaten or stored properly.
+Congregate dining (Wheels to Meals)	Enable seniors to remain living in their own homes by encouraging them to get out and dine with other community members	 
+Provide toaster oven or microwave for heating food.	Preparation is easier.
+Less concern about spoilage. 	Preparation may still be too complex. The person may not like the food.
+Medication 	Simplify medication routines. For example, use a pill dispenser. Have someone visit to give pills.	Allows only a small supply of pills at once.
+Helps person take the pills on the right day and at the right time.	Possibility for confusion about day and time.
+May not prevent person from taking extra medication, if more than one day's supply is available.
+Finances	Use bank-at-home services.	Person does not have to leave home.
+Personalized service.	Person may not be able to deal with finances.
+Does not protect from overpayment
+/non payment of bills, or scams.
+Make someone else, such as a substitute decision-maker, responsible for handling finances, such as writing cheques, paying bills, monitoring accounts. 	Allows person to manage finances with some independence yet provides protection. 
+Direct deposit of cheques and direct payment of bills. 	This hands-free approach to banking offers fewer chances for problems. 
+
 
 Checklists  (What format should these be?  Printable pdf? Online?)
 
